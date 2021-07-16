@@ -20,3 +20,7 @@
 ![thunder-lightning_RuinDig_09](https://user-images.githubusercontent.com/20723919/125913497-c861751a-bd17-4757-9a3c-ae910dad03ed.JPG)
 
 ![thunder-lightning_RuinDig_10](https://user-images.githubusercontent.com/20723919/125913494-a136ec7c-876c-4a48-acc3-64349b88ddca.JPG)
+
+![thunder-lightning_RuinDig_11](https://user-images.githubusercontent.com/20723919/125914407-625a19ec-7419-48bd-b0ab-ecf963c7dcf4.jpg)
+
+![thunder-lightning_RuinDig_12](https://user-images.githubusercontent.com/20723919/125914402-be278166-8557-4449-ace6-aa9123ad74d6.jpg)
